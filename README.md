@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KazakovaPolya.github.io/rsschool-cv/cv
